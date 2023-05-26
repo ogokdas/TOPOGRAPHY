@@ -25,7 +25,7 @@ I welcome contributions to enhance the functionality of this project. If you hav
 
 Contact:
 
-If you have any questions, suggestions, or feedback, you can reach me through the following communication channels: OGOKDAS1@gmail.com +90 5422185544
+If you have any questions, suggestions, or feedback, you can reach me through the following communication channels: OGOKDAS1@gmail.com +90 542 218 55 44
 
 Program Outputs:
 
